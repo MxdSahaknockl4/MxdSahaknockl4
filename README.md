@@ -29,7 +29,7 @@ I'm eager to collaborate on:
 ## 📫 How to Reach Me
 
 Feel free to reach out to me:
-- Via email: mxd.sahaknockl4@example.com
+- Via linkedin.com
 
 ## 😄 Pronouns
 
